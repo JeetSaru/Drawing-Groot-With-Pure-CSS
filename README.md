@@ -7,4 +7,4 @@ You can checkout similar content in this **Youtube Playlist**
 ▶ https://youtube.com/playlist?list=PLHktALTk_XeDer9hPnpyEVVkwVXROzx5J
 
 > You can do whatever you want with the code. However if you love my content, you can **SUBSCRIBED** my YouTube Channel.
-🌎link: www.youtube.com/codingdesign2
+🌎link: www.youtube.com/codingdesign
